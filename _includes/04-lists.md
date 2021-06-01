@@ -1,2 +1,2 @@
-1.Gaming❤️ :heart:🔥:fire:
-2.Programming⚡ :zap:
+1. Gaming❤️ :heart:🔥:fire:
+2. Programming⚡ :zap:
